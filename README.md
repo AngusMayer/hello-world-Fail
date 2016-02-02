@@ -1,2 +1,2 @@
 # hello-world
-Am I sure I want to show this to the world? THIS? That THIS IS WHAT I'VE ACHEIVED IN MY 22 YEARS ON THIS EARTH, THIS IS WHAT I'M SUBMITTING FOR INSPECTION? JUDGE ME THEN! JUDGE MEEEEEEEEEE.
+I'm not sure what I'm supposed to write here
